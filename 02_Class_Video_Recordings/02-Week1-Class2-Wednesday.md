@@ -2,7 +2,7 @@
 PM
 
 Meeting Recording:
-hhttps://www.bootcampspot.com/sessions/1817364/videos/119543
+https://www.bootcampspot.com/sessions/1817364/videos/119543
 
 
 
